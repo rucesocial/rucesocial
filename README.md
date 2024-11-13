@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @rucesocial
-- 🥳 Welcome the my house.🤖
+- 🥳 Welcome to my house.🤖
